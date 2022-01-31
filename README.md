@@ -1,2 +1,7 @@
-# Hello!
+## Hello, I'm Núria!
 
+ #### 🌞 A graphic designer and full stack developer  
+
+🌿 I love travel, nature, sports and graphic design!<br />
+
+📫 How to reach me: nuriaciscar@hotmail.com
