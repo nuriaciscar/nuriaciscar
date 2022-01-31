@@ -4,4 +4,4 @@
 
 🌿 I love travel, nature, sports and graphic design!<br />
 
-📫 How to reach me: nuriaciscar@hotmail.com
+📫 How to reach me: nuriaciscar@hotmail.com or my [Linkedin](https://www.linkedin.com/in/nuriaciscar/).
