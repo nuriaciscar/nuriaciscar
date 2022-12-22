@@ -1,6 +1,6 @@
 ## Hello, I'm Núria!
 
- #### 🌞 A graphic designer and full stack developer  
+ #### 🌞 A graphic designer and frontend developer  
 
 🌿 I love travel, nature, sports and graphic design!<br />
 
